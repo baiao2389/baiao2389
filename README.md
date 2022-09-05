@@ -1,5 +1,5 @@
 - 👋 Hi, I’m amandavitoria
-- estou enteressada em volei
+- estou enteressada em internet 
 - 🌱 I’m currently learning ...
 - 💞️ vou colaborar em me esforça nas aula 
 - 📫 para falar comigo no zap ou hista pvvv-boschin
